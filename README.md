@@ -1,2 +1,9 @@
 # hello-world
-HVJAKA
+
+Milk
+Eggs 
+Cheese 
+
+OH MY GOSH!
+A VIRTUAL SHOPPING LIST!
+AHHHHHHHHHH!!!
